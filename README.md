@@ -1,2 +1,0 @@
-"# bestrong" 
-"# bestrong" 
